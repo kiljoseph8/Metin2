@@ -221,4 +221,4 @@ Metin2 is available as a full free version, ensuring you have access to all feat
 Ready to join the adventure? **Download Metin2 now and step into a world of fantasy and legend!**
 
 ---
-**Last updated:** 2026-10-08 02:27:25 UTC
+**Last updated:** 2026-10-08 09:55:13 UTC
